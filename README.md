@@ -53,7 +53,7 @@ A passionate, hardworking, and enthusiastic fresher looking to improve my skills
 ## 📫 Contact Me
 - 📧 Email: oceanchaudhary2004@gmail.com
 - 📍 Mumbai, India
-- 💼 [LinkedIn](#) (Add your LinkedIn profile link here)
-- 🌐 [Portfolio](#) (Add your portfolio link here)
+- 💼 [LinkedIn](https://www.linkedin.com/in/ocean-chaudhary-666b75212)
+- 📞 Phone: 7558208832
 
 Feel free to connect with me and check out my projects! 🚀
